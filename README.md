@@ -1,0 +1,2 @@
+# Realms
+Rotmg Private Server
